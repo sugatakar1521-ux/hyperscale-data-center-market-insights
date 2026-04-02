@@ -1,4 +1,6 @@
 # Hyperscale Data Center Market: Strategic Expansion Amid AI Surge and Infrastructure Bottlenecks
+![Hyperscale data center  market](https://github.com/user-attachments/assets/320e66fd-5cb5-443a-bd8d-597d6493049d)
+
 
 **Market Overview**
 
